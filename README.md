@@ -30,11 +30,12 @@ I am a passionate computer science and engineering student.I am learning  progra
 - Drawing or painting
 - Cooking
 # 🥇Achievement:
-100% tuition wavier: Northern University Bangladesh
+❖ 100% tuition wavier: Northern University Bangladesh
 
 ❖ Zilla schoolarship- 4,000tk
 
 ❖Drawing compitition: obtaining 1st prize
+
 ❖ Talent Pool scholarship: Junior School Certificate Examination
 
 Thanks for going through my portfolio.All rights reserved by Tanjila Afrin Toma @2024
